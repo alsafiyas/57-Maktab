@@ -1,1 +1,1 @@
-# 57-Maktab
+# Maktabim.uz
